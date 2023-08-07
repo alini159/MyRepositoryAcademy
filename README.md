@@ -1,4 +1,4 @@
-# My Repositor yAcademy
+# My Repository Academy
 
 <h4 align="center"> 
 	🚧  .... 🚀 Em construção...  🚧
